@@ -8,7 +8,7 @@ extended stealth skirts for your V0 with mini fridge door
 ![HeartK Extended Stealth Skirts complete v8-1](https://github.com/user-attachments/assets/6d05becf-15f2-4b26-9881-5cd26ced348c)
 
 
-If you have the Fridge Door on your V0 but wanted the extended version for extra room underneath, Then this is for you.
+If you have the Fridge Door on your V0 but wanted the extended stealth skirts for extra room underneath, Then this is for you.
 
 The Front Skirts have been adapted to extend out to give a more seemless look while also maintaining that original stealth look.
 
